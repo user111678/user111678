@@ -3,7 +3,6 @@
 - 🌱 I’m currently learning ...BBIT
 - 💞️ I’m looking to collaborate on ...3/10
 - 📫 How to reach me ...kabufrancis09@gmail.com
-- 😄 Pronouns: ...tribal chief, spike
 - ⚡ Fun fact: ...a dog lives in a kennel
 - 
 
